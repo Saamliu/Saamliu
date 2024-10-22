@@ -1,0 +1,7 @@
+- 👋 Hi, I'm Samuel Liu.
+- 🏫 I am a recent undergraduate student from an unknown university.
+- 💻 The program code is 080906, and yes, the Digital Media Technology program under the Computer Science category.
+- 😒 *Don't ask me what this major is, in a word, a combination of computer technology and design.*
+- 🎯  My current goal is a job search.
+- 💪 I am well aware that I am a blank sheet of paper and I hope to use this platform to document my growth.
+- 🧐 What kind of personality am I? I think telling you my mbti personality type will give you a basic impression. INFJ, seems like a good one?
