@@ -1,4 +1,4 @@
 - 👋 Hi, I'm Samuel Liu.
-- 🏫 I am a recent undergraduate student from an unknown university.
+- 🏫 I am an unknown student from an unknown university.
 - 💪 I am well aware that I am a blank sheet of paper and I hope to use this platform to document my growth.
 - 🧐 What kind of personality am I? I think telling you my mbti personality type will give you a basic impression. INFJ, seems like a good one?
